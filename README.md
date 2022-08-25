@@ -6,3 +6,4 @@ I would like to be able to work on creating site and undersand more of what goes
 desgin and development.
 
 My favorite hobby is driving around and out of town and taking long hikes in the mountains. 
+ฅ^•ﻌ•^ฅ
